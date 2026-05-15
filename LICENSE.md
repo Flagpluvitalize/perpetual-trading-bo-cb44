@@ -1,4 +1,4 @@
-# 
+# Get the ultimate ftx trading bot with premium ftx trading bot Plugin | isolated-margin + grid-trading. Featuring isolated-margin and grid-trading, it's the best choice for
 
 
 
